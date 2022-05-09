@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[Spoty](https://open.spotify.com/artist/74ASZWbe4lXaubB36ztrGX)
